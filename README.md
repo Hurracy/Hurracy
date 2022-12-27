@@ -1,0 +1,5 @@
+- Hi, I’m @Hurracy, real name is Simon
+- I’m interested in learning new coding skills, that can benefit me in my future job as an engineer in Energy, or Software
+- Currently i'm working on some coding ;)
+- I'm a student of University of Aarhus in Denmark, currentntly studying Bachelors of Electrical Energytechnology Engineering
+- I'm a huge sportfan, and besides studying and coding i do play semiprofessional badminton.
